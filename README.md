@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Chandrakanth P!
 
-![Banner](https://i.pinimg.com/736x/be/8c/86/be8c8698eb96ee49e08e6cc1cbb2e564.jpg)
+![Banner](https://github.com/Chan-prakash/Chan-prakash/blob/main/Screenshot%202024-12-31%20081232.png)
 
 ---
 
